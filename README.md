@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cristal-like-the-champagne
+- 👀 I’m interested in releasing code not attached to my real job
+- 🌱 I’m currently learning how to explore sexuality without dealing with shame
+- 💞️ I’m looking to collaborate on anything related to the free exploration of sex and sexuality
